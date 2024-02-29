@@ -1,6 +1,6 @@
 - 👋 Hi, I’m G.Tushitha Reddy
 - 👀 I’m interested in cyber security and software 
-- 🌱 I’m currently learning b.tech 3rd yr 2 nd semister in sreewnidhi institute of science and technology
+- 🌱 I’m currently learning b.tech 3rd yr 2 nd semister in sreenidhi institute of science and technology
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 - 😄 Pronouns: ...
